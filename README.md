@@ -1,6 +1,6 @@
 # 📱 Forsaken x Opera GX Rewards — Mobile Players
 
-> 🐰 Made with love by [**Gubby Photon**](https://www.youtube.com/@PhotonRBLX) &lt;3
+> 🐰 Made with love b&lt;3. 
 
 ---
 
